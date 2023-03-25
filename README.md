@@ -1,7 +1,8 @@
 # Time_Saving_Repository
-Time_Saving_Repository About Tech
+Time_Saving_Repository About Technology
 
-<Best hacking movies for hacker>
+
+<Best Cyber 🎞️>
 
 hacker
 
@@ -16,7 +17,7 @@ anonymous
 takedown
 
 
-<Top 5 spy apps >
+<Top 5 spy apps 👨‍💻>
 
 spy master
 
@@ -28,7 +29,7 @@ phoneswiff
 
 higheter mobile
 
-<Best sites to review your resume>
+<Best sites to review your resume📃>
 
 zety resume builder
 
@@ -50,7 +51,7 @@ resume builder
 
 enhance
 
-<Best Movies for programmers>
+<Best Movies for programmers👨‍💻>
 
 the emitation game
 
@@ -60,7 +61,7 @@ jobs
 
 the entership
 
-<Highest pays tech jobs>
+<Highest pays tech jobs🏢>
 
 blockchain engineer
 
@@ -84,7 +85,7 @@ bitcoin
 
 docecon
 
-<Roles that dont need codes>
+<Roles that dont need codes🧑‍💻>
 
 product manager
 
@@ -108,7 +109,7 @@ technical writer
 
 content manager customer relationship manager
 
-<Temp Mails>
+<Temp Mails📧>
 
 https://temp-mail.org/
 
@@ -136,7 +137,7 @@ GetNada
 
 YOPmail
 
-<Check out these remote job boards>
+<Check out these remote job boards🏢>
 
 FlexJobs
 
@@ -255,7 +256,7 @@ Foundit
 Cybertecz
 
 
-<DOWNLOAD PC PAID PROGRAM/GAME> 
+<DOWNLOAD PC PAID PROGRAM/GAME💻> 
 
 https://getintopc.com/ (Fav❤️)
 
@@ -269,7 +270,7 @@ https://skidrowreloaded.com
 
 https://dodi-repacks.site
 
-<12 Skills With high Demand in 2023>
+<12 Skills With high Demand in 2023🏂>
 
 1. Project Management
 
@@ -295,7 +296,7 @@ https://dodi-repacks.site
 
 12. Social Media Marketing
 
-<Chaptgpt Alternative>
+<Chaptgpt Alternative💬>
 
 https://chat.tgbot.co
 
@@ -355,7 +356,7 @@ https://chat.paoying.net
 
 https://ai-toolbox.codefuture.top
 
-<Websites To Make Resume>
+<Websites To Make Resume📑>
 
 Novoresume
 
@@ -387,7 +388,7 @@ Kickresume.com
 
 Cakeresume.com
 
-<Websites Makes Money Through Bots>
+<Websites Makes Money Through Bots🤖>
 
 Thephbot.com
 
@@ -399,7 +400,7 @@ Maker.com
 
 Contastbot.ai
 
-<For Udemy Course Free>
+<For Udemy Course Free🆓>
 
 https://www.1377x.to/ (Best One ♥️)
 
@@ -409,7 +410,7 @@ Dicsudemy
 
 https://freepremiumcourse.com/
 
-<Earn Money Online>
+<Earn Money Online🤑>
 
 Schoolsolver
 
@@ -447,7 +448,7 @@ Job today
 
 Happy surveys
 
-<Find Bug Bunty>
+<Find Bug Bunty🤖>
 
 https://earn.superteam.funz 
 
@@ -457,11 +458,11 @@ https://immunef.com/explore/
 
 https://bitcointalk.org/
 
+<Part-time Earning🤑>
+
 Weworkremotely
 
 Work from home
-
-<Part-time Earning>
 
 Fiverr
 
@@ -471,7 +472,7 @@ People Per Hour
 
 Upwork
 
-<Best Antivirus For Pc>
+<Best Antivirus For Pc💻>
 
 Kaspersky
 
@@ -483,7 +484,7 @@ Bitdefender
 
 Windows defender
 
-<Free Ebooks To Download>
+<Free Ebooks To Download📒>
 
 Archive.com
 
@@ -493,7 +494,7 @@ Pdfdriver.com
 
 Pdfcoffee.com
 
-<Best website to host for free>
+<Best website to host for free🌐>
 
 Wix
 
@@ -509,7 +510,7 @@ Freehostria
 
 Bytehost
 
-<Best website for anonymous search>
+<Best website for anonymous 🔍>
 
 Shodan.io
 
@@ -519,7 +520,7 @@ Hunter.io
 
 Publicwww.com
 
-<Create Free Website>
+<Create Free Website🕸️>
 
 W3cschool
 
@@ -527,7 +528,7 @@ Nicepage
 
 Wix
 
-<Best Sites to Download Free PDF>
+<Best Sites to Download Free PDF📕>
 
 Pdfdrive
 
@@ -541,7 +542,7 @@ Project Gutenberg
 
 ManyBooks
 
-<Best Websites To Download Movies>
+<Best Websites To Download Movies📽️>
 
 (Every Time Domain Change Check It)
 
@@ -567,7 +568,7 @@ Filmyzilla
 
 @TGMovies2Bot
 
-<Best Website to Download Mod Apks For Android> 
+<Best Website to Download Mod Apks For Android📱> 
 
 https://espacioapk.com/ (Favourite ❤️)
 
@@ -597,7 +598,7 @@ https://t.me/hackers_zone_fz
 
 https://t.me/ModdedApkStore
 
-<Social Media Hacking Tools>
+<Social Media Hacking Tools⚠️>
 
 Zphisher
 

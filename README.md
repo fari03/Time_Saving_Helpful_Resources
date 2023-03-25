@@ -2,7 +2,7 @@
 Time_Saving_Repository About Technology
 
 
-<Best Cyber 🎞️>
+<𝘽𝙚𝙨𝙩 𝘾𝙮𝙗𝙚𝙧 🎞️>
 
 hacker
 
@@ -17,7 +17,7 @@ anonymous
 takedown
 
 
-<Top 5 spy apps 👨‍💻>
+<𝐓𝐨𝐩 𝟓 𝐬𝐩𝐲 𝐚𝐩𝐩𝐬 👨‍💻>
 
 spy master
 
@@ -51,7 +51,7 @@ resume builder
 
 enhance
 
-<Best Movies for programmers👨‍💻>
+<𝘽𝙚𝙨𝙩 𝙈𝙤𝙫𝙞𝙚𝙨 𝙛𝙤𝙧 𝙥𝙧𝙤𝙜𝙧𝙖𝙢𝙢𝙚𝙧𝙨👨‍💻>
 
 the emitation game
 
@@ -61,7 +61,7 @@ jobs
 
 the entership
 
-<Highest pays tech jobs🏢>
+<𝙃𝙞𝙜𝙝𝙚𝙨𝙩 𝙥𝙖𝙮𝙨 𝙩𝙚𝙘𝙝 𝙟𝙤𝙗𝙨🏢>
 
 blockchain engineer
 
@@ -73,7 +73,7 @@ da scientist
 
 cloud architect
 
-<Invest money>
+<𝙄𝙣𝙫𝙚𝙨𝙩 𝙢𝙤𝙣𝙚𝙮 🤑>
 
 stock
 
@@ -85,7 +85,7 @@ bitcoin
 
 docecon
 
-<Roles that dont need codes🧑‍💻>
+<𝙍𝙤𝙡𝙚𝙨 𝙩𝙝𝙖𝙩 𝙙𝙤𝙣𝙩 𝙣𝙚𝙚𝙙 𝙘𝙤𝙙𝙚𝙨🧑‍💻>
 
 product manager
 
@@ -109,7 +109,7 @@ technical writer
 
 content manager customer relationship manager
 
-<Temp Mails📧>
+<𝙏𝙚𝙢𝙥 𝙈𝙖𝙞𝙡𝙨📧>
 
 https://temp-mail.org/
 
@@ -137,7 +137,7 @@ GetNada
 
 YOPmail
 
-<Check out these remote job boards🏢>
+<𝘾𝙝𝙚𝙘𝙠 𝙤𝙪𝙩 𝙩𝙝𝙚𝙨𝙚 𝙧𝙚𝙢𝙤𝙩𝙚 𝙟𝙤𝙗 𝙗𝙤𝙖𝙧𝙙𝙨🏢>
 
 FlexJobs
 
@@ -257,7 +257,7 @@ Cybertecz
 
 Freeshunt
 
-<DOWNLOAD PC PAID PROGRAM/GAME💻> 
+<𝘿𝙊𝙒𝙉𝙇𝙊𝘼𝘿 𝙋𝘾 𝙋𝘼𝙄𝘿 𝙋𝙍𝙊𝙂𝙍𝘼𝙈/𝙂𝘼𝙈𝙀💻> 
 
 https://getintopc.com/ (Fav❤️)
 
@@ -271,7 +271,7 @@ https://skidrowreloaded.com
 
 https://dodi-repacks.site
 
-<12 Skills With high Demand in 2023🏂>
+<12 𝓢𝓴𝓲𝓵𝓵𝓼 𝓦𝓲𝓽𝓱 𝓱𝓲𝓰𝓱 𝓓𝓮𝓶𝓪𝓷𝓭 𝓲𝓷 2023🏂>
 
 1. Project Management
 
@@ -297,7 +297,7 @@ https://dodi-repacks.site
 
 12. Social Media Marketing
 
-<Chaptgpt Alternative💬>
+<𝐂𝐡𝐚𝐩𝐭𝐠𝐩𝐭 𝐀𝐥𝐭𝐞𝐫𝐧𝐚𝐭𝐢𝐯𝐞💬>
 
 https://chat.tgbot.co
 
@@ -357,7 +357,7 @@ https://chat.paoying.net
 
 https://ai-toolbox.codefuture.top
 
-<Websites To Make Resume📑>
+<𝙒𝙚𝙗𝙨𝙞𝙩𝙚𝙨 𝙏𝙤 𝙈𝙖𝙠𝙚 𝙍𝙚𝙨𝙪𝙢𝙚📑>
 
 Novoresume
 
@@ -389,7 +389,7 @@ Kickresume.com
 
 Cakeresume.com
 
-<Websites Makes Money Through Bots🤖>
+<𝙒𝙚𝙗𝙨𝙞𝙩𝙚𝙨 𝙈𝙖𝙠𝙚𝙨 𝙈𝙤𝙣𝙚𝙮 𝙏𝙝𝙧𝙤𝙪𝙜𝙝 𝘽𝙤𝙩𝙨🤖>
 
 Thephbot.com
 

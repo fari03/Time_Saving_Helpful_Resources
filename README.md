@@ -665,11 +665,14 @@ https://tools.picsart.com/
 
 https://www.shopify.com/tools/logo-maker
 
-<Learn Any Programming Course From Scratch>
+
+<𝙇𝙚𝙖𝙧𝙣 𝘼𝙣𝙮 𝙋𝙧𝙤𝙜𝙧𝙖𝙢𝙢𝙞𝙣𝙜 𝘾𝙤𝙪𝙧𝙨𝙚🧑‍💻>
 
 learnvern (Favourite ❤️)
 
 http://Exercism.org
+
+@haxnology_bot(Telegram)
 
 Swayam
 

@@ -407,6 +407,8 @@ Freecoursesite
 
 Dicsudemy
 
+https://freepremiumcourse.com/
+
 <Earn Money Online>
 
 Schoolsolver
@@ -594,3 +596,11 @@ https://t.me/PREMIUM_FREE_APPS
 https://t.me/hackers_zone_fz
 
 https://t.me/ModdedApkStore
+
+<Social Media Hacking Tools>
+
+Zphisher
+
+Pyphisher
+
+Nexphisher

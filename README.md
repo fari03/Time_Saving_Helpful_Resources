@@ -1,7 +1,7 @@
 # Time_Saving_Repository
 Time_Saving_Repository About Tech
 
-<best hacking movies for hacker>
+<Best hacking movies for hacker>
 
 hacker
 
@@ -16,7 +16,7 @@ anonymous
 takedown
 
 
-<top 5 spy apps >
+<Top 5 spy apps >
 
 spy master
 
@@ -50,7 +50,7 @@ resume builder
 
 enhance
 
-<movies for programmers>
+<Best Movies for programmers>
 
 the emitation game
 
@@ -60,7 +60,7 @@ jobs
 
 the entership
 
-<highest pays tech jobs>
+<Highest pays tech jobs>
 
 blockchain engineer
 
@@ -68,11 +68,11 @@ fullstack developer
 
 product manager
 
-da sc
+da scientist 
 
 cloud architect
 
-<invest money>
+<Invest money>
 
 stock
 
@@ -84,7 +84,7 @@ bitcoin
 
 docecon
 
-<roles that dont need codes>
+<Roles that dont need codes>
 
 product manager
 
@@ -136,7 +136,8 @@ GetNada
 
 YOPmail
 
-➡️ Check out these remote job boards:
+<Check out these remote job boards>
+
 -FlexJobs
 -Remote.co
 -We Work Remotely
@@ -168,14 +169,15 @@ YOPmail
 -Remote 4 ME
 -Remote OK
 
-*Remote based on region*
+<Remote based on region>
 EU Remote Jobs
 Talenteum.Africa
 Remote Europe
 Waw Asia
 
-➡️ Job boards with remote options:
-*Tech*
+>Job boards with remote options>
+
+Tech
 Wellfound (formerly AngelList Talent)
 PowerToFly
 Dribbble
@@ -183,21 +185,24 @@ Built In
 OTTA.COM
 Tech Junction
 Jobsfactor
-
-*Social good*
+Social good
 Tech Jobs for Good
 Escape the City
 Root Stock Jobs
 
-*General *
+<General>
 LinkedIn
 Glassdoor
 Monster
 Indeed.com
 Idealist.org
 CareerBuilder
+Apna
+Foundit
+Cybertecz
 
-DOWNLOAD PC PAID PROGRAM/GAME 
+
+<DOWNLOAD PC PAID PROGRAM/GAME> 
 
 https://getintopc.com/ (Fav❤️)
 www.skidrowreloaded.com/
@@ -206,8 +211,7 @@ https://www.4download.net/
 https://skidrowreloaded.com
 https://dodi-repacks.site
 
-12 Skills With high Demand in 2023
-@TheStarkArmyX
+<12 Skills With high Demand in 2023>
 
 1. Project Management
 2. Photoshop
@@ -221,7 +225,9 @@ https://dodi-repacks.site
 10. Excel Knowledge
 11. UX Design
 12. Social Media Marketing
-  
+
+<Chaptgpt Alternative>
+
 https://chat.tgbot.co
 https://app.writesonic.com/
 https://chat.theb.ai
@@ -242,15 +248,15 @@ https://talk.xiu.ee
 https://www.scyu.app
 https://www.chat2ai.cn
 https://aigcfun.com
- https://chat.forchange.cn
- https://94gpt.com
- https://chat.yqcloud.top
- https://ai117.com
- https://chat.zecoba.cn
- https://ai.yiios.com
- https://xc.com
- https://chat.paoying.net
- https://ai-toolbox.codefuture.top
+https://chat.forchange.cn
+https://94gpt.com
+https://chat.yqcloud.top
+https://ai117.com
+https://chat.zecoba.cn
+https://ai.yiios.com
+https://xc.com
+https://chat.paoying.net
+https://ai-toolbox.codefuture.top
 
 <Websites To Make Resume>
 

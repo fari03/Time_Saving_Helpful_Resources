@@ -139,147 +139,262 @@ YOPmail
 <Check out these remote job boards>
 
 -FlexJobs
+
 -Remote.co
+
 -We Work Remotely
+
 -Jobgether
+
 -Dynamite Jobs
+
 -letsworkremotely
+
 -Growmotely
+
 -JustRemote
+
 -Pangian
+
 -FindAsync
+
 -Working Nomads
+
 -Remotive - Remote Jobs
+
 -Flexa® Careers
+
 -Workew
+
 -Remoters.me
+
 -Skip The Drive LLC
+
 -GoRemotely
+
 -RemoteHub
+
 -Remote Tribe
+
 -Citizen Remote
+
 -Remote Leaf
+
 -Remote Work Junkie
+
 -NoCommute
+
 -People-First Jobs
+
 -DailyRemote
+
 -Truly Remote
+
 -Nodesk
+
 -JobsPresso
+
 -Remote 4 ME
+
 -Remote OK
 
 <Remote based on region>
+
 EU Remote Jobs
+
 Talenteum.Africa
+
 Remote Europe
+
 Waw Asia
 
 >Job boards with remote options>
 
 Tech
+
 Wellfound (formerly AngelList Talent)
+
 PowerToFly
+
 Dribbble
+
 Built In
+
 OTTA.COM
+
 Tech Junction
+
 Jobsfactor
+
 Social good
+
 Tech Jobs for Good
+
 Escape the City
+
 Root Stock Jobs
 
 <General>
+
 LinkedIn
+
 Glassdoor
+
 Monster
+
 Indeed.com
+
 Idealist.org
+
 CareerBuilder
+
 Apna
+
 Foundit
+
 Cybertecz
 
 
 <DOWNLOAD PC PAID PROGRAM/GAME> 
 
 https://getintopc.com/ (Fav❤️)
+
 www.skidrowreloaded.com/
+
 https://cracked-games.org/
+
 https://www.4download.net/
+
 https://skidrowreloaded.com
+
 https://dodi-repacks.site
 
 <12 Skills With high Demand in 2023>
 
 1. Project Management
+
 2. Photoshop
+
 3. SEO/Google Analytics
+
 4. Facebook Ads
+
 5. Web Development
+
 6. App Development
+
 7. Coding
+
 8. Copywriting
+
 9. Public Speaking
+
 10. Excel Knowledge
+
 11. UX Design
+
 12. Social Media Marketing
 
 <Chaptgpt Alternative>
 
 https://chat.tgbot.co
+
 https://app.writesonic.com/
+
 https://chat.theb.ai
+
 https://freechatgpt.chat
+
 https://fastgpt.app
+
 https://freegpt.cc
- https://you.com/
+
+https://you.com/
+
 https://freegpt.one
+
 https://chatgpt.ddiu.me
+
 https://chat.ninvfeng.xyz
+
 https://www.aitoolgpt.com
+
 https://www.chatsverse.xyz
+
 https://chatforai.com
+
 https://desk.im
+
 https://ai.ls
+
 https://ai.ci
+
 https://talk.xiu.ee
+
 https://www.scyu.app
+
 https://www.chat2ai.cn
+
 https://aigcfun.com
+
 https://chat.forchange.cn
+
 https://94gpt.com
+
 https://chat.yqcloud.top
+
 https://ai117.com
+
 https://chat.zecoba.cn
+
 https://ai.yiios.com
+
 https://xc.com
+
 https://chat.paoying.net
+
 https://ai-toolbox.codefuture.top
 
 <Websites To Make Resume>
 
 Novoresume
+
 Resume ai
+
 Flowcv.com
+
 Canva
+
 Showcase.com
+
 Zety.com
+
 Resume.com
+
 Resumegenius.com
+
 Resumebaker.com
+
 Enhancv.com
+
 Overleaf(Best one & Free)
+
 Figma
+
 Zety(B)
+
 Kickresume.com
+
 Cakeresume.com
 
 <Websites Makes Money Through Bots>
 
 Thephbot.com
+
 Scarytoolbots.com
+
 Shineranker.com
+
 Maker.com
+
 Contastbot.ai

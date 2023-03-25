@@ -29,7 +29,7 @@ phoneswiff
 
 higheter mobile
 
-<Best sites to review your resume📃>
+<𝘽𝙚𝙨𝙩 𝙨𝙞𝙩𝙚𝙨 𝙩𝙤 𝙧𝙚𝙫𝙞𝙚𝙬 𝙮𝙤𝙪𝙧 𝙧𝙚𝙨𝙪𝙢𝙚📃>
 
 zety resume builder
 
@@ -401,7 +401,7 @@ Maker.com
 
 Contastbot.ai
 
-<For Udemy Course Free🆓>
+<𝙁𝙤𝙧 𝙐𝙙𝙚𝙢𝙮 𝘾𝙤𝙪𝙧𝙨𝙚 𝙁𝙧𝙚𝙚🆓>
 
 https://www.1377x.to/ (Best One ♥️)
 
@@ -411,7 +411,7 @@ Dicsudemy
 
 https://freepremiumcourse.com/
 
-<Earn Money Online🤑>
+<𝙀𝙖𝙧𝙣 𝙈𝙤𝙣𝙚𝙮 𝙊𝙣𝙡𝙞𝙣𝙚🤑>
  
 Schoolsolver
 
@@ -461,7 +461,7 @@ Job today
 
 Happy surveys
 
-<Find Bug Bunty🤖>
+<𝙁𝙞𝙣𝙙 𝘽𝙪𝙜 𝘽𝙪𝙣𝙩𝙮🤖>
 
 https://earn.superteam.funz 
 
@@ -471,7 +471,7 @@ https://immunef.com/explore/
 
 https://bitcointalk.org/
 
-<Part-time Earning🤑>
+<𝙋𝙖𝙧𝙩-𝙩𝙞𝙢𝙚 𝙀𝙖𝙧𝙣𝙞𝙣𝙜🤑>
  
  aicte.india.org
 
@@ -487,7 +487,7 @@ People Per Hour
 
 Upwork
 
-<Best Antivirus For Pc💻>
+<𝘽𝙚𝙨𝙩 𝘼𝙣𝙩𝙞𝙫𝙞𝙧𝙪𝙨 𝙁𝙤𝙧 𝙋𝙘💻>
 
 Kaspersky
 
@@ -499,7 +499,7 @@ Bitdefender
 
 Windows defender
 
-<Free Ebooks To Download📒>
+<𝙁𝙧𝙚𝙚 𝙀𝙗𝙤𝙤𝙠𝙨 𝙏𝙤 𝘿𝙤𝙬𝙣𝙡𝙤𝙖𝙙📒>
 
 Archive.com
 
@@ -509,7 +509,7 @@ Pdfdriver.com
 
 Pdfcoffee.com
 
-<Best website to host for free🌐>
+<𝘽𝙚𝙨𝙩 𝙬𝙚𝙗𝙨𝙞𝙩𝙚 𝙩𝙤 𝙝𝙤𝙨𝙩 𝙛𝙤𝙧 𝙛𝙧𝙚𝙚🌐>
 
 Wix
 
@@ -525,7 +525,7 @@ Freehostria
 
 Bytehost
 
-<Best website for anonymous 🔍>
+<𝘽𝙚𝙨𝙩 𝙬𝙚𝙗𝙨𝙞𝙩𝙚 𝙛𝙤𝙧 𝙖𝙣𝙤𝙣𝙮𝙢𝙤𝙪𝙨🔍>
 
 Shodan.io
 
@@ -535,7 +535,7 @@ Hunter.io
 
 Publicwww.com
 
-<Create Free Website🕸️>
+<𝘾𝙧𝙚𝙖𝙩𝙚 𝙁𝙧𝙚𝙚 𝙒𝙚𝙗𝙨𝙞𝙩𝙚🕸️>
 
 W3cschool
 
@@ -543,7 +543,7 @@ Nicepage
 
 Wix
 
-<Best Sites to Download Free PDF📕>
+<𝓑𝓮𝓼𝓽 𝓢𝓲𝓽𝓮𝓼 𝓽𝓸 𝓓𝓸𝔀𝓷𝓵𝓸𝓪𝓭 𝓕𝓻𝓮𝓮 𝓟𝓓𝓕📕>
 
 Pdfdrive
 
@@ -557,7 +557,7 @@ Project Gutenberg
 
 ManyBooks
 
-<Best Websites To Download Movies📽️>
+<𝘽𝙚𝙨𝙩 𝙒𝙚𝙗𝙨𝙞𝙩𝙚𝙨 𝙏𝙤 𝘿𝙤𝙬𝙣𝙡𝙤𝙖𝙙 𝙈𝙤𝙫𝙞𝙚𝙨📽️>
 
 (Every Time Domain Change Check It)
 
@@ -583,7 +583,7 @@ Filmyzilla
 
 @TGMovies2Bot
 
-<Best Website to Download Mod Apks For Android📱> 
+<𝘽𝙚𝙨𝙩 𝙒𝙚𝙗𝙨𝙞𝙩𝙚 𝙩𝙤 𝘿𝙤𝙬𝙣𝙡𝙤𝙖𝙙 𝙈𝙤𝙙 𝘼𝙥𝙠𝙨 𝙁𝙤𝙧 𝘼𝙣𝙙𝙧𝙤𝙞𝙙📱> 
 
 https://espacioapk.com/ (Favourite ❤️)
 
@@ -613,7 +613,7 @@ https://t.me/hackers_zone_fz
 
 https://t.me/ModdedApkStore
 
-<Social Media Hacking Tools⚠️>
+<𝙎𝙤𝙘𝙞𝙖𝙡 𝙈𝙚𝙙𝙞𝙖 𝙃𝙖𝙘𝙠𝙞𝙣𝙜 𝙏𝙤𝙤𝙡𝙨⚠️>
 
 Zphisher
 
@@ -621,7 +621,7 @@ Pyphisher
 
 Nexphisher
 
-<online Photo Edit📷>
+<𝙤𝙣𝙡𝙞𝙣𝙚 𝙋𝙝𝙤𝙩𝙤 𝙀𝙙𝙞𝙩📷>
 
 PfpMaker
 
@@ -663,7 +663,7 @@ idigitalpreneur
 
 https://neverinstall.com/
 
-<Explore And Get What You Want🥱>
+<𝙀𝙭𝙥𝙡𝙤𝙧𝙚 𝘼𝙣𝙙 𝙂𝙚𝙩 𝙒𝙝𝙖𝙩 𝙔𝙤𝙪 𝙒𝙖𝙣𝙩🥱>
 
 https://www.exploit-db.com/
 

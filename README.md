@@ -206,4 +206,18 @@ https://www.4download.net/
 https://skidrowreloaded.com
 https://dodi-repacks.site
 
+12 Skills With high Demand in 2023
+@TheStarkArmyX
 
+1. Project Management
+2. Photoshop
+3. SEO/Google Analytics
+4. Facebook Ads
+5. Web Development
+6. App Development
+7. Coding
+8. Copywriting
+9. Public Speaking
+10. Excel Knowledge
+11. UX Design
+12. Social Media Marketing

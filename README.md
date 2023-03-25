@@ -412,7 +412,7 @@ Dicsudemy
 https://freepremiumcourse.com/
 
 <Earn Money Online🤑>
-
+ 
 Schoolsolver
 
 2captcha
@@ -472,6 +472,8 @@ https://immunef.com/explore/
 https://bitcointalk.org/
 
 <Part-time Earning🤑>
+ 
+ aicte.india.org
 
 Weworkremotely
 

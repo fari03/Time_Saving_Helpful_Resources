@@ -276,3 +276,10 @@ Zety(B)
 Kickresume.com
 Cakeresume.com
 
+<Websites Makes Money Through Bots>
+
+Thephbot.com
+Scarytoolbots.com
+Shineranker.com
+Maker.com
+Contastbot.ai

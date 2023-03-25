@@ -445,3 +445,12 @@ Job today
 
 Happy surveys
 
+<Find Bug Bunty>
+
+https://earn.superteam.funz 
+
+ https://app.dework.xyz/bounties
+
+https://immunef.com/explore/
+
+https://bitcointalk.org/

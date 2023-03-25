@@ -1,6 +1,32 @@
 # Time_Saving_Repository
 Time_Saving_Repository About Technology
 
+<𝙇𝙚𝙖𝙧𝙣 𝘼𝙣𝙮 𝙋𝙧𝙤𝙜𝙧𝙖𝙢𝙢𝙞𝙣𝙜 𝘾𝙤𝙪𝙧𝙨𝙚🧑‍💻>
+
+learnvern (Favourite ❤️)
+
+http://Exercism.org
+
+@haxnology_bot(Telegram)
+
+Swayam
+
+https://alison.com/
+
+Sololearn
+
+https://www.simplilearn.com/
+
+https://www.coursetk.com/
+
+https://learnprogramming.online/
+
+codecamp
+
+inprogrammer
+
+idigitalpreneur
+
 
 <𝘽𝙚𝙨𝙩 𝙨𝙞𝙩𝙚𝙨 𝙩𝙤 𝙧𝙚𝙫𝙞𝙚𝙬 𝙮𝙤𝙪𝙧 𝙧𝙚𝙨𝙪𝙢𝙚📃>
 
@@ -664,33 +690,6 @@ Photopea
 https://tools.picsart.com/
 
 https://www.shopify.com/tools/logo-maker
-
-
-<𝙇𝙚𝙖𝙧𝙣 𝘼𝙣𝙮 𝙋𝙧𝙤𝙜𝙧𝙖𝙢𝙢𝙞𝙣𝙜 𝘾𝙤𝙪𝙧𝙨𝙚🧑‍💻>
-
-learnvern (Favourite ❤️)
-
-http://Exercism.org
-
-@haxnology_bot(Telegram)
-
-Swayam
-
-https://alison.com/
-
-Sololearn
-
-https://www.simplilearn.com/
-
-https://www.coursetk.com/
-
-https://learnprogramming.online/
-
-codecamp
-
-inprogrammer
-
-idigitalpreneur
 
 <One website Many Use>
 

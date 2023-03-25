@@ -222,33 +222,51 @@ https://dodi-repacks.site
 11. UX Design
 12. Social Media Marketing
   
- https://chat.tgbot.co
-  https://app.writesonic.com/
-2. https://chat.theb.ai
-3. https://freechatgpt.chat
-4. https://fastgpt.app
-5. https://freegpt.cc
-  https://you.com/
-6. https://freegpt.one
-7. https://chatgpt.ddiu.me
-8. https://chat.ninvfeng.xyz
-9. https://www.aitoolgpt.com
-10 https://www.chatsverse.xyz
-11. https://chatforai.com
-12. https://desk.im
-13. https://ai.ls
-14. https://ai.ci
-15. https://talk.xiu.ee
-16. https://www.scyu.app
-17. https://www.chat2ai.cn
-18. https://aigcfun.com
-19. https://chat.forchange.cn
-20. https://94gpt.com
-21. https://chat.yqcloud.top
-22. https://ai117.com
-23. https://chat.zecoba.cn
-24. https://ai.yiios.com
-25. https://xc.com
-26. https://chat.paoying.net
-27. https://ai-toolbox.codefuture.top
+https://chat.tgbot.co
+https://app.writesonic.com/
+https://chat.theb.ai
+https://freechatgpt.chat
+https://fastgpt.app
+https://freegpt.cc
+ https://you.com/
+https://freegpt.one
+https://chatgpt.ddiu.me
+https://chat.ninvfeng.xyz
+https://www.aitoolgpt.com
+https://www.chatsverse.xyz
+https://chatforai.com
+https://desk.im
+https://ai.ls
+https://ai.ci
+https://talk.xiu.ee
+https://www.scyu.app
+https://www.chat2ai.cn
+https://aigcfun.com
+ https://chat.forchange.cn
+ https://94gpt.com
+ https://chat.yqcloud.top
+ https://ai117.com
+ https://chat.zecoba.cn
+ https://ai.yiios.com
+ https://xc.com
+ https://chat.paoying.net
+ https://ai-toolbox.codefuture.top
+
+<Websites To Make Resume>
+
+Novoresume
+Resume ai
+Flowcv.com
+Canva
+Showcase.com
+Zety.com
+Resume.com
+Resumegenius.com
+Resumebaker.com
+Enhancv.com
+Overleaf(Best one & Free)
+Figma
+Zety(B)
+Kickresume.com
+Cakeresume.com
 

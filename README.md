@@ -228,6 +228,7 @@ https://dodi-repacks.site
 3. https://freechatgpt.chat
 4. https://fastgpt.app
 5. https://freegpt.cc
+  https://you.com/
 6. https://freegpt.one
 7. https://chatgpt.ddiu.me
 8. https://chat.ninvfeng.xyz

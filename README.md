@@ -27,6 +27,7 @@ inprogrammer
 
 idigitalpreneur
 
+https://in.skillup.online/
 
 <𝘽𝙚𝙨𝙩 𝙨𝙞𝙩𝙚𝙨 𝙩𝙤 𝙧𝙚𝙫𝙞𝙚𝙬 𝙮𝙤𝙪𝙧 𝙧𝙚𝙨𝙪𝙢𝙚📃>
 
@@ -141,8 +142,6 @@ ThrowAwayMail
 GetNada
 
 YOPmail
-
-
 
 <𝘾𝙝𝙚𝙘𝙠 𝙤𝙪𝙩 𝙩𝙝𝙚𝙨𝙚 𝙧𝙚𝙢𝙤𝙩𝙚 𝙟𝙤𝙗 𝙗𝙤𝙖𝙧𝙙𝙨🏢>
 
@@ -430,8 +429,14 @@ https://freepremiumcourse.com/
  
 
 <𝙀𝙖𝙧𝙣 𝙈𝙤𝙣𝙚𝙮 𝙊𝙣𝙡𝙞𝙣𝙚🤑>
+
+Remotive.com
+
+https://www.mindsumo.com/challenges/all
  
 Schoolsolver
+
+https://vocal.media/
 
 2captcha
 
@@ -506,8 +511,24 @@ Freelancer
 People Per Hour
 
 Upwork
- 
- 
+
+Contra
+
+guru
+
+simplehired
+
+twine
+
+toptal
+
+odesk
+
+outsourcely
+
+truelancer
+
+
 <𝘽𝙚𝙨𝙩 𝘾𝙮𝙗𝙚𝙧 🎞️>
 
 hacker
@@ -622,6 +643,66 @@ https://tamilblasters.social/
 
 https://m4uhd.tv/
 
+9xmovies
+
+ Hdfriday
+ 
+Isaimini 
+
+Jalshamoviez
+
+Jio Rockers
+
+Khatrimaza 
+
+Kuttyweb 
+
+Madras Rockers
+
+Moviemad
+
+ Bolly4u
+ 
+ Bollyshare
+ 
+Cinemavilla
+
+ Djmaza
+ 
+ Filmyhit
+ 
+Filmywap 
+
+Moviescounter
+
+Moviesda
+
+MoviesJatt
+
+MoviezWap
+
+MP4Moviez
+
+Pagal World
+
+ Skymovies
+ 
+Tamil Play 
+
+TamilGun 
+
+Tamilyogi 
+
+TeluguWap 
+
+Todaypk
+
+Torrent 
+
+Worldfree4u
+
+Hdhub4u
+ 
 Movierulz
 
 Moviezwaphd

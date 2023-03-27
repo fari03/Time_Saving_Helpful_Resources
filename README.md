@@ -198,6 +198,14 @@ Remote.co
 
 We Work Remotely
 
+WorkInStartups
+
+Angel.co
+
+haystackapp.io
+
+remoteok.com
+
 Jobgether
 
 Dynamite Jobs
@@ -356,6 +364,8 @@ Social Media Marketing
 <𝐂𝐡𝐚𝐩𝐭𝐠𝐩𝐭 𝐀𝐥𝐭𝐞𝐫𝐧𝐚𝐭𝐢𝐯𝐞💬>
 
 https://chat.tgbot.co
+
+@GPT4Telegrambot(Telegram)
 
 https://app.writesonic.com/
 
@@ -804,6 +814,11 @@ Filmyzilla
 <Telegram>
 
 @TGMovies2Bot
+
+@iPapkornBetaBot
+
+@Kannadamovierequestbot(Kfi)
+
  
 
 <𝘽𝙚𝙨𝙩 𝙒𝙚𝙗𝙨𝙞𝙩𝙚 𝙩𝙤 𝘿𝙤𝙬𝙣𝙡𝙤𝙖𝙙 𝙈𝙤𝙙 𝘼𝙥𝙠𝙨 𝙁𝙤𝙧 𝘼𝙣𝙙𝙧𝙤𝙞𝙙📱> 
@@ -877,9 +892,9 @@ https://www.eyeofjustice.com/od/
 
 https://filepursuit.com/
  
-<𝐔𝐬𝐞𝐟𝐮𝐥 𝐓𝐨𝐨𝐥> 
+<𝐔𝐬𝐞𝐟𝐮𝐥 𝐓𝐨𝐨𝐥🪛> 
 
-Tinywow.ai (remove any password protected pdf)
+Tinywow.ai (remove any pswd protected pdf)
 
 Unified App 
 
@@ -899,7 +914,7 @@ http://Media.io
  
 https://t.me/newfileconverterbot (telegram bot convert any files)
  
- <𝘽𝙚𝙨𝙩 𝘿𝙚𝙨𝙞𝙜𝙣 𝙏𝙤𝙤𝙡>
+ <𝘽𝙚𝙨𝙩 𝘿𝙚𝙨𝙞𝙜𝙣 𝙏𝙤𝙤𝙡❇️>
 
 ✍️ Graphic Design : Canva
   

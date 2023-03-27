@@ -1,5 +1,20 @@
 # Time_Saving_Repository
-Time_Saving_Repository About Technology
+
+
+<h3 align="center">
+
+![](https://capsule-render.vercel.app/api?type=waving&color=gradient&height=150&section=header)
+
+<p align="center">
+  <div align="center">
+    <img
+        src="https://readme-typing-svg.herokuapp.com?font=GlossAndBloom&size=30&duration=4997&color=993300&background=FF673200&center=true&vCenter=true&lines=WLC+TO+TIME+SAVING+REPO+;RELATED+TO+TECH+;"
+            alt="Typing SVG"
+        />
+    </a>
+</p>
+</div>
+
 
 <𝙇𝙚𝙖𝙧𝙣 𝘼𝙣𝙮 𝙋𝙧𝙤𝙜𝙧𝙖𝙢𝙢𝙞𝙣𝙜 𝘾𝙤𝙪𝙧𝙨𝙚🧑‍💻>
 

@@ -632,15 +632,18 @@ Bytehost
 
 <𝘽𝙚𝙨𝙩 𝙬𝙚𝙗𝙨𝙞𝙩𝙚 𝙛𝙤𝙧 𝙖𝙣𝙤𝙣𝙮𝙢𝙤𝙪𝙨🔍>
 
-Shodan.io
-
-Zoomeye.org
-
-Hunter.io
-
-Publicwww.com
+1. http://Fofa.so
+2. http://Wigle.net
+3. http://Hunter.io
+4. http://Shodan.io
+5. http://Onyphe.io
+6. http://Zoomeye.org
+7. http://Ghostproject.fr
+8. http://App.binaryedge.io
+9. http://Viz.Greynoise.io/table
+10.Publicwww.com
  
-
+ 
 <𝘾𝙧𝙚𝙖𝙩𝙚 𝙁𝙧𝙚𝙚 𝙒𝙚𝙗𝙨𝙞𝙩𝙚🕸️>
 
 W3cschool

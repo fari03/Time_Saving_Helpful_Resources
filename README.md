@@ -829,6 +829,8 @@ https://glodls.to/home.php
 https://www.eyeofjustice.com/od/
 
 https://filepursuit.com/
+ 
+<𝐔𝐬𝐞𝐟𝐮𝐥 𝐓𝐨𝐨𝐥> 
 
 Tinywow.ai (remove any password protected pdf)
 
@@ -848,7 +850,29 @@ https://alternativeto.net/
  
 http://Media.io
  
- https://t.me/newfileconverterbot (telegram bot convert any files)
+https://t.me/newfileconverterbot (telegram bot convert any files)
+ 
+ <𝘽𝙚𝙨𝙩 𝘿𝙚𝙨𝙞𝙜𝙣 𝙏𝙤𝙤𝙡>
+
+✍️ Graphic Design : Canva
+  
+⚙️ Animate Designs : Figma
+  
+💨 Animate Content : Jitter
+  
+📸 Stock Images 101 : Unsplash
+  
+🎥 Stock Video : Pixabay
+  
+🧑‍🎨 Creative Inspiration : Dribbble
+  
+🎨 Trending Colors : Coolors
+  
+🔍 Free Icons : Icons8
+  
+🔡 Free Fonts : Fonts.Google
+  
+📝 Best Paired Fonts : Fontjoy
  
 
 𝙏𝙝𝙞𝙨 𝙞𝙣𝙛𝙤𝙧𝙢𝙖𝙩𝙞𝙤𝙣 𝙞𝙨 𝙤𝙣𝙡𝙮 𝙛𝙤𝙧 𝙚𝙙𝙪𝙘𝙖𝙩𝙞𝙤𝙣al 𝙥𝙪𝙧𝙥𝙤𝙨𝙚 𝙖𝙣𝙙 𝙬𝙚 𝙖𝙧𝙚 𝙣𝙤𝙩 𝙧𝙚𝙨𝙥𝙤𝙣𝙨𝙞𝙗𝙡𝙚 𝙛𝙤𝙧 𝙖𝙣𝙮 𝙠𝙞𝙣𝙙 𝙤𝙛 𝙞𝙡𝙡𝙚𝙜𝙖𝙡 𝙖𝙘𝙩𝙞𝙫𝙞𝙩𝙮 𝙙𝙤𝙣𝙚 𝙗𝙮 𝙩𝙝𝙞𝙨 𝙩𝙤𝙤𝙡.

@@ -7,6 +7,10 @@ learnvern (Favourite ❤️)
 
 http://Exercism.org
 
+coursera
+
+freecodecamp
+
 @haxnology_bot(Telegram)
 
 Swayam
@@ -18,6 +22,12 @@ https://www.w3schools.com/
 https://alison.com/
 
 Sololearn
+
+hackerrank
+
+Leetcode
+
+codechef
 
 https://www.simplilearn.com/
 
@@ -32,6 +42,24 @@ inprogrammer
 idigitalpreneur
 
 https://in.skillup.online/
+
+HTML → http://w3schools.com
+
+CSS → http://CSS-tricks.com
+
+JavaScript → http://LearnJavaScript.online
+
+Git and GitHub → http://LearnGitBranching.js.org
+
+React → http://React-tutorial.app
+
+SQL → http://SQLbolt.com
+
+Blockchain → http://cryptozombies.io
+
+html,css-https://learnhtmlcss.online/
+
+crytpo-https://cryptozombies.io/
 
 <𝘽𝙚𝙨𝙩 𝙨𝙞𝙩𝙚𝙨 𝙩𝙤 𝙧𝙚𝙫𝙞𝙚𝙬 𝙮𝙤𝙪𝙧 𝙧𝙚𝙨𝙪𝙢𝙚📃>
 
@@ -647,11 +675,15 @@ https://tamilblasters.social/
 
 https://m4uhd.tv/
 
+https://movieswood.cloud/
+
 9xmovies
 
  Hdfriday
  
 Isaimini 
+
+vegamovies 
 
 Jalshamoviez
 

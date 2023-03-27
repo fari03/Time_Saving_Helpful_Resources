@@ -262,7 +262,7 @@ Remote Europe
 
 Waw Asia
 
->Job boards with remote options>
+<Job boards with remote options>
 
 Tech
 
@@ -328,29 +328,29 @@ https://dodi-repacks.site
 
 <12 𝓢𝓴𝓲𝓵𝓵𝓼 𝓦𝓲𝓽𝓱 𝓱𝓲𝓰𝓱 𝓓𝓮𝓶𝓪𝓷𝓭 𝓲𝓷 2023🏂>
 
-1. Project Management
+Project Management
 
-2. Photoshop
+Photoshop
 
-3. SEO/Google Analytics
+SEO/Google Analytics
 
-4. Facebook Ads
+Facebook Ads
 
-5. Web Development
+Web Development
 
-6. App Development
+App Development
 
-7. Coding
+Coding
 
-8. Copywriting
+Copywriting
 
-9. Public Speaking
+Public Speaking
 
-10. Excel Knowledge
+Excel Knowledge
 
-11. UX Design
+UX Design
 
-12. Social Media Marketing
+Social Media Marketing
  
 
 <𝐂𝐡𝐚𝐩𝐭𝐠𝐩𝐭 𝐀𝐥𝐭𝐞𝐫𝐧𝐚𝐭𝐢𝐯𝐞💬>
@@ -647,16 +647,16 @@ Bytehost
 
 <𝘽𝙚𝙨𝙩 𝙬𝙚𝙗𝙨𝙞𝙩𝙚 𝙛𝙤𝙧 𝙖𝙣𝙤𝙣𝙮𝙢𝙤𝙪𝙨🔍>
 
-1. http://Fofa.so
-2. http://Wigle.net
-3. http://Hunter.io
-4. http://Shodan.io
-5. http://Onyphe.io
-6. http://Zoomeye.org
-7. http://Ghostproject.fr
-8. http://App.binaryedge.io
-9. http://Viz.Greynoise.io/table
-10.Publicwww.com
+http://Fofa.so
+http://Wigle.net
+http://Hunter.io
+http://Shodan.io
+http://Onyphe.io
+http://Zoomeye.org
+http://Ghostproject.fr
+http://App.binaryedge.io
+http://Viz.Greynoise.io/table
+Publicwww.com
  
  
 <𝘾𝙧𝙚𝙖𝙩𝙚 𝙁𝙧𝙚𝙚 𝙒𝙚𝙗𝙨𝙞𝙩𝙚🕸️>

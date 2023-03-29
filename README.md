@@ -118,7 +118,7 @@ fullstack developer
 
 product manager
 
-da scientist 
+data scientist 
 
 cloud architect
 
@@ -269,6 +269,30 @@ Talenteum.Africa
 Remote Europe
 
 Waw Asia
+
+Jobs Factor
+
+Jobspresso
+
+JustRemote
+
+Open Talent
+
+Skipthedrive
+
+Freshremote
+
+Remote Europe
+
+Smooth Remote
+
+Eu Remote Jobs
+
+Remote Hr Jobs
+
+People Hr Jobs
+
+Working Nomads
 
 <Job boards with remote options>
 

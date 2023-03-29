@@ -455,9 +455,15 @@ Novoresume
 
 Resume ai
 
+Standard Resume
+
 Flowcv.com
 
 Canva
+
+Wepik
+
+Hubspot
 
 Showcase.com
 
@@ -475,12 +481,22 @@ Overleaf(Best one & Free)
 
 Figma
 
-Zety(B)
+Zety
 
 Kickresume.com
 
 Cakeresume.com
- 
+
+Copy.Ai
+
+nextlevel
+
+Indeed
+
+Jobseeker
+
+Jobscan's Resume Builder
+
  
 
 <𝙒𝙚𝙗𝙨𝙞𝙩𝙚𝙨 𝙈𝙖𝙠𝙚𝙨 𝙈𝙤𝙣𝙚𝙮 𝙏𝙝𝙧𝙤𝙪𝙜𝙝 𝘽𝙤𝙩𝙨🤖>

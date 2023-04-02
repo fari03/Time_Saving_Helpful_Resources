@@ -26,6 +26,8 @@ coursera
 
 freecodecamp
 
+https://roadmap.sh/
+
 @haxnology_bot(Telegram)
 
 Swayam
@@ -136,7 +138,6 @@ bitcoin
 docecon
 
 
-
 <𝙍𝙤𝙡𝙚𝙨 𝙩𝙝𝙖𝙩 𝙙𝙤𝙣𝙩 𝙣𝙚𝙚𝙙 𝙘𝙤𝙙𝙚𝙨🧑‍💻>
 
 product manager
@@ -190,6 +191,7 @@ GetNada
 
 YOPmail
 
+
 <𝘾𝙝𝙚𝙘𝙠 𝙤𝙪𝙩 𝙩𝙝𝙚𝙨𝙚 𝙧𝙚𝙢𝙤𝙩𝙚 𝙟𝙤𝙗 𝙗𝙤𝙖𝙧𝙙𝙨🏢>
 
 FlexJobs
@@ -201,6 +203,76 @@ We Work Remotely
 WorkInStartups
 
 Angel.co
+
+FlexJobs
+
+Remote.co
+
+We Work Remotely
+
+Jobgether
+
+Dynamite Jobs
+
+letsworkremotely
+
+Growmotely
+
+JustRemote
+
+Pangian
+
+FindAsync
+
+Working Nomads
+
+Remotive - Remote Jobs
+
+Flexa® Careers
+
+Workew
+
+Remoters.me 
+
+Skip The Drive LLC
+
+GoRemotely
+
+RemoteHub
+
+Remote Tribe
+
+Citizen Remote
+
+Remote Leaf
+
+Remote Work Junkie
+
+NoCommute
+
+People-First Jobs
+
+DailyRemote
+
+Truly Remote
+
+EU Remote Jobs
+
+Talenteum.Africa
+
+Wellfound (formerly AngelList Talent)
+
+PowerToFly
+
+Dribbble
+
+Built In
+
+Otta.com
+
+Tech Jobs for Good
+
+Escape the City
 
 haystackapp.io
 

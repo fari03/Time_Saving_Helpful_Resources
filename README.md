@@ -1007,7 +1007,7 @@ https://t.me/newfileconverterbot (telegram bot convert any files)
 📝 Best Paired Fonts : Fontjoy
   
   
-<𝙎𝙤𝙢𝙚 𝙐𝙨𝙚𝙛𝙪𝙡 𝙀-𝙇𝙚𝙖𝙧𝙣𝙞𝙣𝙜 𝙋𝙡𝙖𝙩𝙚𝙛𝙤𝙧𝙢>
+<𝙎𝙤𝙢𝙚 𝙐𝙨𝙚𝙛𝙪𝙡 𝙀-𝙇𝙚𝙖𝙧𝙣𝙞𝙣𝙜 𝙋𝙡𝙖𝙩𝙚𝙛𝙤𝙧𝙢📓>
  
  www.khanacademy.org
  
@@ -1027,7 +1027,7 @@ codeacademy.org
  
 youtube.com/education
 
-<Companies Hire Freshers Off campus🏭>
+<𝘾𝙤𝙢𝙥𝙖𝙣𝙞𝙚𝙨 𝙃𝙞𝙧𝙚 𝙁𝙧𝙚𝙨𝙝𝙚𝙧𝙨 𝙊𝙛𝙛 𝙘𝙖𝙢𝙥𝙪𝙨🏭>
 
 👉 Nagarro: http://lnkd.in/dRyQ_rkk
 
@@ -1145,7 +1145,7 @@ MorganStanley:http://lnkd.in/d53kRcp3
 
 👉 IBM: http://lnkd.in/dU-VhUCw
 
-<Companies Which Hire Freshers Remotely Friendly💻>
+<𝐂𝐨𝐦𝐩𝐚𝐧𝐢𝐞𝐬 𝐖𝐡𝐢𝐜𝐡 𝐇𝐢𝐫𝐞 𝐅𝐫𝐞𝐬𝐡𝐞𝐫𝐬 𝐑𝐞𝐦𝐨𝐭𝐞𝐥𝐲 𝐅𝐫𝐢𝐞𝐧𝐝𝐥𝐲💻>
 
 👉 Airtable : https://airtable.com
 
@@ -1264,7 +1264,7 @@ https://lnkd.in/dsKtGeCV
 
 👉 Instamobile : https://instamobile.io
 
-<Top Websites To Find Job🏭>
+<𝙏𝙤𝙥 𝙒𝙚𝙗𝙨𝙞𝙩𝙚𝙨 𝙏𝙤 𝙁𝙞𝙣𝙙 𝙅𝙤𝙗🏭>
  
 👉 Upwork: https://upwork.com
 
@@ -1507,6 +1507,15 @@ Execute from Emergency dial screen to unlock
 PUK code
 05#
 
+<𝘼𝙄 𝙩𝙤𝙤𝙡𝙨 𝙩𝙤 𝙧𝙚𝙙𝙪𝙘𝙚 𝙬𝙤𝙧𝙠 𝙝𝙤𝙪𝙧𝙨💻>
+
+1. Logo ➝ http://IconifyAI.com
+2. Design ➝ http://StockImg.ai
+3. Code ➝ http://Stunning.so
+4. Copywriting ➝ http://Jounce.ai
+5. Images ➝ http://Midjourney.com
+6. Slides ➝ http://Deepbrain.io/aistudios
+
 <Best Websites To Edit Online Video✂️>
 
 Veed.io
@@ -1535,7 +1544,7 @@ Befunky
 
 Stencil
 
-<Get New Learning Thing🧠>
+<𝙂𝙚𝙩 𝙉𝙚𝙬 𝙇𝙚𝙖𝙧𝙣𝙞𝙣𝙜 𝙏𝙝𝙞𝙣𝙜🧠>
 
 <Telegram>
 

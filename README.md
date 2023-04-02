@@ -1144,6 +1144,125 @@ MorganStanley:http://lnkd.in/d53kRcp3
 👉 Revature: http://lnkd.in/dtJkkrBp
 
 👉 IBM: http://lnkd.in/dU-VhUCw
+
+<Companies Which Hire Freshers Remotely Friendly💻>
+
+👉 Airtable : https://airtable.com
+
+👉 Mercor : https://mercor.io
+
+👉 Syntax Systems : https://syntax.com
+
+👉 Zepter : http://zepter.com
+
+👉 Ably : https://ably.io
+
+👉Ad Hoc : https://adhocteam.us
+
+👉 Adaface : https://adaface.com
+
+👉 Adzuna : https://adzuna.co.uk
+
+👉 AddStructure
+https://lnkd.in/dsKtGeCV
+
+👉 AE Studio : https://ae.studio
+
+👉 Aerolab : https://aerolab.co
+
+👉 Aim India : https://aimincorp.com
+
+👉 Airbank : https://lnkd.in/dizsTUhy
+
+👉 AirGarage : https://airgarage.com
+
+👉 Aivitex : https://aivitex.com
+
+👉 Algorand : https://algorand.com
+
+👉 Bloc : https://bloc.io
+
+👉 Boldare : https://boldare.com
+
+👉 Brave Investments : https://lnkd.in/ddApPAH9 investment
+
+👉 Bright Funds : https://lnkd.in/dfsi5uKd
+
+👉 Buffer : https://buffer.com
+
+👉 Bugfender : https://bugfender.com
+
+👉 BuySellAds : https://lnkd.in/dZzuTgDV
+
+👉Cabify : https://cabify.com 
+
+👉 Calamari : https://calamari.io
+
+👉 Calibre : https://calibreapp.com
+
+👉 Canonical : https://canonical.com
+
+👉 Capital One : https://lnkd.in/dj9qSKCP
+
+👉 Carbon Black : https://lnkd.in/dgKPESKT
+
+👉 Data Science Brigade : https://dsbrigade.com
+
+👉 DataCamp :https://datacamp.com
+
+👉 Datadog : https://datadoghq.com
+
+👉 DigitalOcean : https://lnkd.in/drUKmjdd
+
+👉 Enjoei : https://enjoei.com.br
+
+👉 Enok : https://enok.co
+
+👉 Entrision : https://entrision.com
+
+👉 Envato : https://envato.com
+
+👉 Epam : https://epam.com
+
+👉 Fetlife : https://fetlife.com
+
+👉 FFW Agency : https://ffwagency.com
+
+👉 Filament Group : https://lnkd.in/dGprjgrv
+
+👉 Findify : https://findify.io
+
+👉 FingerprintJS : https://fingerprintjs.com
+
+👉 Fire Engine Red : https://lnkd.in/d6yNfJsJ
+
+👉 Giant : https://giantmade.com
+
+👉 Giant Swarm : https://giantswarm.io
+
+👉 GigSalad : https://gigsalad.com
+
+👉 Gitbook : https://gitbook.com
+
+👉 GitHub : https://github.com
+
+👉 Hack Reactor Remote
+
+   https://lnkd.in/de3tcRQk
+
+👉 Hanno : https://hanno.co
+
+👉 Hanzo : https://hanzo.co
+
+ 👉 Happy Cog : https://happycog.com
+
+👉 Harvest : https://lnkd.in/db-wuRCW
+
+👉 Inpsyde : https://inpsyde.com/en/
+
+👉 InQuickerhttps://inquicker.com 
+
+👉 Instamobile : https://instamobile.io
  
 <⚠️𝘼𝙣𝙙𝙧𝙤𝙞𝙙 𝘾𝙤𝙢𝙢𝙤𝙣⚠️>
 

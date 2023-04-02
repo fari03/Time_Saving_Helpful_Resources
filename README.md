@@ -1263,7 +1263,91 @@ https://lnkd.in/dsKtGeCV
 👉 InQuickerhttps://inquicker.com 
 
 👉 Instamobile : https://instamobile.io
+
+<Top Websites To Find Job🏭>
  
+👉 Upwork: https://upwork.com
+
+👉 Vue.js Jobs: https://vuejobs.com
+
+👉 React.js Jobs: https://lnkd.in/dyW5WNwu
+
+👉 http://Remote.com: https://remote.com
+
+👉 Web3Jobs: https://lnkd.in/dZc-eKGG
+
+👉 We Love Go: https://lnkd.in/dT7tYSBQ
+
+👉 We Work Remotely: https://lnkd.in/dAgHkyaJ
+
+👉 Workana: https://workana.com
+
+👉 Ruby on Remote: https://rubyonremote.com
+
+👉 Skip the Drive: https://lnkd.in/dtvc_EjE
+
+👉 Slasify: https://slasify.com/en/
+
+👉 Stack Overflow Jobs: https://lnkd.in/dJKXpSGw
+
+👉 Ruby on Remote: https://rubyonremote.com
+
+👉 http://RemoteJobs.lat: https://remotejobs.lat
+
+👉 Remotive Jobs: https://remotive.io
+
+👉 Remote People: https://remotepeople.io
+
+👉 Remote Works: https://lnkd.in/dZ59-iCY
+
+👉 http://Landing.jobs: https://lnkd.in/dBqv8E8p
+
+👉 Larajobs: https://lnkd.in/dA6VS4R6
+
+👉 No Fluff Jobs: https://lnkd.in/dByJjzY6
+
+👉 NODESK: https://lnkd.in/dcZ4in_A
+
+👉 Power to fly: https://lnkd.in/dMvSjrDa
+
+👉 Remote Game Jobs: https://lnkd.in/dzYDgHE4
+
+👉 Hasjob: https://hasjob.co
+
+👉 HigherEdJobs: https://lnkd.in/dBR3uGCA
+
+👉 HN Hiring: http://hnhiring.me
+
+👉 http://JOBBOX.io: https://lnkd.in/dBqv8E8p
+
+👉 http://Jobhunt.ai: https://lnkd.in/d77YqhCc
+
+👉 Jobspresso: https://jobspresso.co
+
+👉 4 Day Week: https://4dayweek.io
+
+👉 Angle List: https://angel.co/jobs
+
+👉 Authentic Jobs: https://lnkd.in/dCtvRzRd
+
+👉 Built In: https://lnkd.in/dtkX3xqW
+
+👉 http://ClojureJobboard.com: https://lnkd.in/dkCafJ5M
+
+👉 Codestunts: https://codestunts.com
+
+👉 Crypto Jobs: https://lnkd.in/dQp-wMYs
+
+👉 Cryptocurrency Jobs: https://lnkd.in/dXr-d6CF
+
+👉 Daily Remote: https://dailyremote.com
+
+👉 Diversify Tech: https://lnkd.in/dFPQQMRH
+
+👉 Dribble Jobs: https://lnkd.in/d4PaUfsm
+
+👉 Find Bacon: https://findbacon.com
+
 <⚠️𝘼𝙣𝙙𝙧𝙤𝙞𝙙 𝘾𝙤𝙢𝙢𝙤𝙣⚠️>
 
 Testing Menu
@@ -1451,8 +1535,7 @@ Befunky
 
 Stencil
 
-
-<Get New Learning Thing>
+<Get New Learning Thing🧠>
 
 <Telegram>
 

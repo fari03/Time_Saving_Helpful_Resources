@@ -1026,6 +1026,124 @@ www.academicjournals.org
 codeacademy.org
  
 youtube.com/education
+
+<Companies Hire Freshers Off campus🏭>
+
+👉 Nagarro: http://lnkd.in/dRyQ_rkk
+
+👉 Virtusa: http://lnkd.in/dHJwPXiG
+
+👉Zoho: http://lnkd.in/dUw9Qi4B
+
+👉 CGI: http://lnkd.in/d3vs3whb
+
+👉 Finastra: http://lnkd.in/dsXSfUev
+
+👉 FIS: http://lnkd.in/dJCX6aVz
+
+👉 Fiserv: http://lnkd.in/d7inSReM
+
+👉 IQVIA : http://lnkd.in/dsxAXftw
+
+👉 JIO: http://lnkd.in/dqVxSNgW
+
+👉 MAQ Software: http://lnkd.in/d2dkHExY
+
+👉 Optum: http://lnkd.in/dvxb_7ds
+
+👉 Publicis Sapient: http://lnkd.in/d6G3tHUF
+
+👉 Geekyants: http://lnkd.in/dDKQVqv2
+
+👉 Accolite: http://lnkd.in/dDN5PWQk
+
+👉 Airtel:http://lnkd.in/d9i9YwjV
+
+👉 EA: http://lnkd.in/dHTe2pFc
+
+👉Gartner: http://lnkd.in/dgsH4KUz
+
+👉 HARMAN: http://lnkd.in/dBP_hSFE
+
+👉 Yellow[.]ai: http://lnkd.in/dUPgitVf
+
+👉 Seimens : http://lnkd.in/df4czTeb
+
+👉 Samsung: http://lnkd.in/d5gUrDxq
+
+👉 Vmware: http://lnkd.in/d7zgbhXk
+
+👉 Adobe http://lnkd.in/dMWhmAKZ
+
+👉 Amazon: http://lnkd.in/dSYUatGR
+
+👉 Cadence Design Systems: http://lnkd.in/dAjV2Df4
+
+👉 CleverTap: http://lnkd.in/dUNg4sZP
+
+👉Cisco: http://jobs.cisco.com
+
+👉 Dunzo: http://lnkd.in/d5ZUmmG6
+
+👉 FamPay: http://apply.fampay.in
+
+👉 Flipkart: http://lnkd.in/d_9WfsNY
+
+👉 Google: http://lnkd.in/dGMfCuRs
+
+👉 Hackererath :http://lnkd.in/ds2n7SNb
+
+MorganStanley:http://lnkd.in/d53kRcp3
+
+👉 EY: http://lnkd.in/d9MbsS3V
+
+👉 MyGate: http://lnkd.in/d5pTjwxs
+
+👉 McAfee: http://lnkd.in/d7vST4g6
+
+👉 Oracle: http://lnkd.in/dDDbnZMu
+
+👉 Microsoft: http://lnkd.in/dKt2drwp
+
+👉 PhonePe: http://lnkd.in/dtTZzhXn
+
+👉 PWC: http://lnkd.in/d4b8DTft
+
+👉 Rakuten: http://lnkd.in/dRuSSrq2
+
+👉Razorpay: http://lnkd.in/dveHTU3p
+
+👉 SAP: http://lnkd.in/dDVKcPST
+
+👉 Media[.]net: http://lnkd.in/dfti6QZ8
+
+👉 Twilio: http://lnkd.in/dskmG6eT
+
+👉 Byju’s: http://lnkd.in/dX4g5UrW
+
+👉 TCS : http://lnkd.in/dJpHXdvv
+
+👉 Infosys : http://lnkd.in/dEcdZ7gf
+
+👉 Wipro: http://lnkd.in/d89txDcp
+
+👉 Cognizant: http://lnkd.in/d6tp6F_p
+
+👉 LTI: http://lnkd.in/dnCVuQzD
+
+👉 Capgemini: http://lnkd.in/dZBUYY88
+
+👉 DXC Technology: http://lnkd.in/dnVzT7eb
+
+👉 HCL: http://lnkd.in/dwTuQWAf
+
+👉 Hashedin: http://lnkd.in/d2ePnTG4
+
+👉 Hexaware: http://jobs.hexaware.com
+
+👉 Revature: http://lnkd.in/dtJkkrBp
+
+👉 IBM: http://lnkd.in/dU-VhUCw
  
 <⚠️𝘼𝙣𝙙𝙧𝙤𝙞𝙙 𝘾𝙤𝙢𝙢𝙤𝙣⚠️>
 

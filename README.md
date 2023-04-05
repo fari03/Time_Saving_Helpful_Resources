@@ -22,11 +22,15 @@ learnvern (Favourite ❤️)
 
 Course Buffet
 
+https://www.educative.io/explore
+
 https://alison.com/
 
 http://Exercism.org
 
 coursera
+
+https://www.edx.org/
 
 freecodecamp
 

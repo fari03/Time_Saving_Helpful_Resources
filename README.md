@@ -411,7 +411,15 @@ soft32
   
 sourceforge.net
   
-softtonic  
+softtonic 
+
+https://www.techno360.in/category/free-stuff/
+
+https://www.giveawayoftheday.com/
+
+https://giveaway.tickcoupon.com/
+
+https://giveawayradar.weebly.com/
  
 
 <12 𝓢𝓴𝓲𝓵𝓵𝓼 𝓦𝓲𝓽𝓱 𝓱𝓲𝓰𝓱 𝓓𝓮𝓶𝓪𝓷𝓭 𝓲𝓷 2023🏂>

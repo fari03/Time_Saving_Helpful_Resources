@@ -1221,6 +1221,8 @@ MorganStanley:http://lnkd.in/d53kRcp3
 
 👉 IBM: http://lnkd.in/dU-VhUCw
 
+👉Yash Technologies:https://lnkd.in/d6Usmf4D
+
 <𝐂𝐨𝐦𝐩𝐚𝐧𝐢𝐞𝐬 𝐖𝐡𝐢𝐜𝐡 𝐇𝐢𝐫𝐞 𝐅𝐫𝐞𝐬𝐡𝐞𝐫𝐬 𝐑𝐞𝐦𝐨𝐭𝐞𝐥𝐲 𝐅𝐫𝐢𝐞𝐧𝐝𝐥𝐲💻>
 
 👉 Airtable : https://airtable.com

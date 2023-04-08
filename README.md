@@ -200,11 +200,23 @@ YOPmail
 
 <𝘾𝙝𝙚𝙘𝙠 𝙤𝙪𝙩 𝙩𝙝𝙚𝙨𝙚 𝙧𝙚𝙢𝙤𝙩𝙚 𝙟𝙤𝙗 𝙗𝙤𝙖𝙧𝙙𝙨🏢>
 
+https://automattic.com/work-with-us/
+
+https://weworkremotely.com/
+
+https://preply.com/
+
+https://99designs.com/
+
+https://gotranscript.com/transcriptio...
+
+https://www.peopleperhour.com/
+
+https://www.clickworker.com/
+
 FlexJobs
 
 Remote.co
-
-We Work Remotely
 
 WorkInStartups
 
@@ -213,8 +225,6 @@ Angel.co
 FlexJobs
 
 Remote.co
-
-We Work Remotely
 
 Jobgether
 

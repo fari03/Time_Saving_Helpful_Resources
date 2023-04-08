@@ -200,6 +200,16 @@ YOPmail
 
 <𝘾𝙝𝙚𝙘𝙠 𝙤𝙪𝙩 𝙩𝙝𝙚𝙨𝙚 𝙧𝙚𝙢𝙤𝙩𝙚 𝙟𝙤𝙗 𝙗𝙤𝙖𝙧𝙙𝙨🏢>
 
+Dice
+
+Scouted
+
+Angle List
+
+The muse
+
+Underdog.io
+
 https://automattic.com/work-with-us/
 
 https://weworkremotely.com/
@@ -336,7 +346,7 @@ People Hr Jobs
 
 Working Nomads
 
-<Job boards with remote options>
+<𝙅𝙤𝙗 𝙗𝙤𝙖𝙧𝙙𝙨 𝙬𝙞𝙩𝙝 𝙧𝙚𝙢𝙤𝙩𝙚 𝙤𝙥𝙩𝙞𝙤𝙣𝙨>
 
 Tech
 
@@ -362,7 +372,15 @@ Escape the City
 
 Root Stock Jobs
 
-<General>
+<𝙂𝙚𝙣𝙚𝙧𝙖𝙡>
+
+https://www.seekho.ai/jobs
+
+https://geeksgod.com/#
+
+https://www.enggwave.com/
+
+https://www.hirist.com/
 
 LinkedIn
 
@@ -384,7 +402,8 @@ Cybertecz
 
 Freeshunt
 
- 
+
+
 <𝘿𝙊𝙒𝙉𝙇𝙊𝘼𝘿 𝙋𝘾 𝙋𝘼𝙄𝘿 𝙋𝙍𝙊𝙂𝙍𝘼𝙈/𝙂𝘼𝙈𝙀💻> 
 
 https://getintopc.com/ (Fav❤️)

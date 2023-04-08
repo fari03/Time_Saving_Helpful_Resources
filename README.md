@@ -546,6 +546,12 @@ https://ai-toolbox.codefuture.top
 
 Novoresume
 
+Hyresnap
+
+SkillRoads
+
+Resumeworded
+
 Resume ai
 
 Standard Resume

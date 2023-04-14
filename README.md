@@ -784,7 +784,21 @@ https://freepremiumcourse.com/
 
 <𝙀𝙖𝙧𝙣 𝙈𝙤𝙣𝙚𝙮 𝙊𝙣𝙡𝙞𝙣𝙚🤑>
 
+92
+
+chegg
+
+cambly
+
 Remotive.com
+
+convertkit
+
+aureber
+
+hubspot
+
+wp engine
 
 https://www.mindsumo.com/challenges/all
  
@@ -851,7 +865,7 @@ https://bitcointalk.org/
  
 
 <𝙋𝙖𝙧𝙩-𝙩𝙞𝙢𝙚 𝙀𝙖𝙧𝙣𝙞𝙣𝙜🤑>
- 
+
 aicte.india.org
 
 Weworkremotely
@@ -859,6 +873,10 @@ Weworkremotely
 Work from home
 
 Fiverr
+
+pottomking
+
+skillshop.google.com
 
 Freelancer
 
@@ -1225,6 +1243,8 @@ http://Media.io
 https://t.me/newfileconverterbot (telegram bot convert any files)
  
  <𝘽𝙚𝙨𝙩 𝘿𝙚𝙨𝙞𝙜𝙣 𝙏𝙤𝙤𝙡❇️>
+ 
+ https://www.digitalsamaritan.co/ - many ai
 
 ✍️ Graphic Design : Canva
   
@@ -1590,6 +1610,8 @@ https://lnkd.in/dsKtGeCV
 
 👉 Find Bacon: https://findbacon.com
 
+
+
 <𝙏𝙤𝙥 30 𝙒𝙚𝙗 𝙝𝙤𝙨𝙩𝙞𝙣𝙜 𝙨𝙞𝙩𝙚𝙨👨‍💻>
 
 1 Bluehost - https://bluehost.com
@@ -1826,6 +1848,11 @@ PUK code
   
 6. Slides ➝ http://Deepbrain.io/aistudios
 
+7.website-mixo.ai
+
+8.easy-peasy.ai
+
+
 <Best Websites To Edit Online Video✂️>
   
 synthesia ai  
@@ -1850,7 +1877,6 @@ pictory.ai
   
 invideo.io  
   
-
 Veed.io
 
 Flexclip

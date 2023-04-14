@@ -84,6 +84,46 @@ html,css-https://learnhtmlcss.online/
 
 crytpo-https://cryptozombies.io/
 
+
+
+<👉 Free Roadmap to Become Developer💻 >
+
+👉 Frontend Developer : https://lnkd.in/dvDW2-k7
+
+👉 DevOps Roadmap : https://roadmap.sh/devops
+
+👉 Backend Developer : https://roadmap.sh/backend
+
+👉 Android Developer : https://roadmap.sh/android
+
+👉 PostgreSQL DBA : https://lnkd.in/deA8F9Q4
+
+👉 Blockchain Developer : https://lnkd.in/dWZT9Bxv
+
+👉 QA Engineer : https://roadmap.sh/qa
+
+👉 Software Architect : https://lnkd.in/d4Wpizje
+
+👉 React Developer : https://roadmap.sh/react
+
+👉 JavaScript Roadmap : https://lnkd.in/d692PwkY
+
+👉 Node.js Developer : https://roadmap.sh/nodejs
+
+👉 TypeScript : https://lnkd.in/d-ar_m6r
+
+👉 Python Developer : https://roadmap.sh/python
+
+👉 Java Developer : https://roadmap.sh/java
+
+👉 Go Developer : https://roadmap.sh/golang
+
+👉 Cyber Security Expert : https://lnkd.in/dub6n_MY
+
+👉 Flutter Developer : https://roadmap.sh/flutter
+
+
+
 <𝘽𝙚𝙨𝙩 𝙨𝙞𝙩𝙚𝙨 𝙩𝙤 𝙧𝙚𝙫𝙞𝙚𝙬 𝙮𝙤𝙪𝙧 𝙧𝙚𝙨𝙪𝙢𝙚📃>
 
 zety resume builder

@@ -86,7 +86,7 @@ crytpo-https://cryptozombies.io/
 
 
 
-<👉 Free Roadmap to Become Developer💻 >
+<👉 𝙁𝙧𝙚𝙚 𝙍𝙤𝙖𝙙𝙢𝙖𝙥 𝙩𝙤 𝘽𝙚𝙘𝙤𝙢𝙚 𝘿𝙚𝙫𝙚𝙡𝙤𝙥𝙚𝙧💻 >
 
 👉 Frontend Developer : https://lnkd.in/dvDW2-k7
 
@@ -1827,6 +1827,29 @@ PUK code
 6. Slides ➝ http://Deepbrain.io/aistudios
 
 <Best Websites To Edit Online Video✂️>
+  
+synthesia ai  
+  
+lumen5
+  
+movio.la
+  
+runway
+  
+rawshorts
+  
+designs.ai
+  
+flexclip
+  
+elai.io
+  
+wave.video
+  
+pictory.ai
+  
+invideo.io  
+  
 
 Veed.io
 

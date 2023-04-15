@@ -560,6 +560,97 @@ Cybertecz
 
 Freeshunt
 
+<Movies that will bow your brain 🧠 >
+
+Inception
+
+Shutter Island
+
+Number 23
+
+I'm not allowed to talk about it
+
+Barton fink
+
+Machinist
+
+A beautiful mind
+
+Secret window
+
+Personna
+
+Lighthouse
+
+Jacob's ladder
+
+Mulholland drive
+
+Black swan
+
+Perfect blue
+
+Adaptation
+
+Stranger Than Fiction
+
+Donnie darko
+
+Enemy
+
+The platform
+
+Triangle
+
+the curious case of Benjamin Button
+
+Tenet
+
+The prestige
+
+Where the wild things are
+
+Momento
+
+The exam
+
+Circle
+
+Lords of the ring
+
+Predestination 
+
+Interstellar
+
+Fight club
+
+The Orphanage
+
+Gifted
+
+Gravity
+
+Bridge of Spies
+
+The Imitation Game
+
+Source Code
+
+Pathology
+
+The piano
+
+Memento
+
+Powder
+
+Limitless
+
+Truman show
+
+OG Pinocchio lol
+
+eyes wide shut
 
 
 <𝘿𝙊𝙒𝙉𝙇𝙊𝘼𝘿 𝙋𝘾 𝙋𝘼𝙄𝘿 𝙋𝙍𝙊𝙂𝙍𝘼𝙈/𝙂𝘼𝙈𝙀💻> 

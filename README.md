@@ -560,7 +560,7 @@ Cybertecz
 
 Freeshunt
 
-<Movies that will bow your brain 🧠 >
+< 𝙈𝙤𝙫𝙞𝙚𝙨 𝙩𝙝𝙖𝙩 𝙬𝙞𝙡𝙡 𝙗𝙤𝙬 𝙮𝙤𝙪𝙧 𝙗𝙧𝙖𝙞𝙣 🧠 >
 
 Inception
 
@@ -648,7 +648,7 @@ Limitless
 
 Truman show
 
-OG Pinocchio lol
+Guillermo del Toro's Pinocchio
 
 eyes wide shut
 

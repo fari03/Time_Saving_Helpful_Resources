@@ -701,6 +701,8 @@ https://chat.tgbot.co
 
 https://app.writesonic.com/
 
+https://ora.sh/
+
 https://chat.theb.ai
 
 https://freechatgpt.chat
@@ -1285,6 +1287,18 @@ https://www.eyeofjustice.com/od/
 https://filepursuit.com/
 
 https://andisearch.com/
+
+thepiratedbay.org
+
+katcr.co/
+
+www.limetorrents.info
+
+rarbg.to/
+
+yts.mx/
+
+
  
 <𝐔𝐬𝐞𝐟𝐮𝐥 𝐓𝐨𝐨𝐥🪛> 
 

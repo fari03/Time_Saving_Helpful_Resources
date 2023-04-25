@@ -28,6 +28,8 @@ https://www.educative.io/explore
 
 https://alison.com/
 
+https://www.learnpython.org/
+
 http://Exercism.org
 
 coursera

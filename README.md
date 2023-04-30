@@ -34,6 +34,16 @@ http://Exercism.org
 
 coursera
 
+Infyspringboard.onwingspan.com/
+
+www.pmkvyofficial.org/
+
+futureskillsprime.in/
+
+swayam.gov.in/
+
+www.careers360.com/
+
 https://www.edx.org/
 
 freecodecamp

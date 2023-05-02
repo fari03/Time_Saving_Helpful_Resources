@@ -8,7 +8,7 @@
 <p align="center">
   <div align="center">
     <img
-        src="https://readme-typing-svg.herokuapp.com?font=GlossAndBloom&size=30&duration=4997&color=993300&background=FF673200&center=true&vCenter=true&lines=WLC+TO+TIME+SAVING+HELPFUL+;RESOURCES+RELATED+TO+TECH+;"
+        src="https://readme-typing-svg.herokuapp.com?font=GlossAndBloom&size=30&duration=4997&color=993300&background=FF673200&center=true&vCenter=true&lines=WLC+TO+TIME+SAVING+;HELPFUL+RESOURCES+;RELATED+TO+TECH+;"
             alt="Typing SVG"
         />
     </a>

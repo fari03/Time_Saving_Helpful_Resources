@@ -98,7 +98,13 @@ html,css-https://learnhtmlcss.online/
 
 crytpo-https://cryptozombies.io/
 
+edx
 
+academic earth
+
+future learn
+
+https://www.classcentral.com/
 
 <👉 𝙁𝙧𝙚𝙚 𝙍𝙤𝙖𝙙𝙢𝙖𝙥 𝙩𝙤 𝘽𝙚𝙘𝙤𝙢𝙚 𝘿𝙚𝙫𝙚𝙡𝙤𝙥𝙚𝙧💻 >
 
